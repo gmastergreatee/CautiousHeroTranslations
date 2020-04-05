@@ -12,7 +12,6 @@ This is a pdf compilation of the translated version of the light novel obtained 
 
 ## Status
 
-- __Season 1__ : Seriously bro! U gotta watch the anime, its available(free) at youtube by [MuseAsia]
-(https://www.youtube.com/playlist?list=PLwLSw1_eDZl0hI_XedalMVIvHcVLOouiv)
+- __Season 1__ : Seriously bro! U gotta watch the anime, its available(free) at youtube by [MuseAsia](https://www.youtube.com/playlist?list=PLwLSw1_eDZl0hI_XedalMVIvHcVLOouiv)
 - __Season 2__ : Complete
 - __Season 3__ : Ongoing
